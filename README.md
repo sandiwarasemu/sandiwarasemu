@@ -2,4 +2,6 @@
  
  
 
- <img width="321" height="251" alt="Image" src="https://github.com/user-attachments/assets/02b1dc54-68a6-49ff-a982-5ba47ae8a7a6" />
+ <img width="274" height="200" alt="Image" src="https://github.com/user-attachments/assets/a23cb709-1351-4786-b594-0c0baed2dadd" />
+<div align="center">
+yo 😭simon, stop ngelemnya dud ✌
